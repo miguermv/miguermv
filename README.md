@@ -1,4 +1,4 @@
-Hi 👋 My name is Miguel Robles
+Hi ✌️ My name is Miguel Robles
 ==============================
 
 Software Engineer Student
